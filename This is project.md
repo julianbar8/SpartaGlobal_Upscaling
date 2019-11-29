@@ -1,3 +1,0 @@
-# SpartaGlobal_Upscaling
-
-adfsd
